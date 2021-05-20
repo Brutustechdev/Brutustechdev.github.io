@@ -1,2 +1,0 @@
-# brutustech.github.io
-# brutustech
